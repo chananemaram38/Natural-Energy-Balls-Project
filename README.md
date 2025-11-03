@@ -8,6 +8,10 @@ Producing a natural and healthy snack that provides energy to the body in a safe
 
 1.Introduction
 
+In today’s fast-paced world, people often rely on processed snacks that are high in sugar and unhealthy fats. This project focuses on creating a **natural and healthy snack** — Energy Balls — made entirely from nutritious ingredients. These snacks provide a quick source of energy, support a healthy lifestyle, and are suitable for students, athletes, and anyone who needs a quick energy boost during the day.
+
+
+
 2.Project Idea
 
 3.Project Objectives
