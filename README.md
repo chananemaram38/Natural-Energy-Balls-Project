@@ -14,36 +14,36 @@ Producing a natural and healthy snack that provides energy to the body in a safe
 
 4.Ingredients and Preparation Method
    
-     Ingredients
+Ingredients
 
   
-        1 cup of rolled oats
+   1 cup of rolled oats
 
-        1 cup of pitted dates
+   1 cup of pitted dates
 
-        2 tablespoons of honey or natural syrup
+   2 tablespoons of honey or natural syrup
 
-        2 tablespoons of cocoa powder (unsweetened)
+   2 tablespoons of cocoa powder (unsweetened)
 
-        ½ cup of mixed nuts (almonds, walnuts, or peanuts)
+   ½ cup of mixed nuts (almonds, walnuts, or peanuts)
 
-        1 tablespoon of coconut oil
+   1 tablespoon of coconut oil
 
-        Optional: a pinch of cinnamon or shredded coconut for coating
+   Optional: a pinch of cinnamon or shredded coconut for coating
 
-     Preparation Steps
+Preparation Steps
 
-       - Blend the dates and nuts in a food processor until the texture becomes sticky and coarse.
+   - Blend the dates and nuts in a food processor until the texture becomes sticky and coarse.
 
-       - Add oats, honey, cocoa, and coconut oil to the mixture. Blend again until all ingredients are well combined.
+   - Add oats, honey, cocoa, and coconut oil to the mixture. Blend again until all ingredients are well combined.
 
-       - Shape the mixture into small round balls using your hands.
+   - Shape the mixture into small round balls using your hands.
 
-       - Roll them in shredded coconut or cocoa powder for an extra coating.
+   - Roll them in shredded coconut or cocoa powder for an extra coating.
 
-       - Refrigerate for 30 minutes to firm up the texture.
+   - Refrigerate for 30 minutes to firm up the texture.
 
-       - Store the energy balls in an airtight container for up to one week
+   - Store the energy balls in an airtight container for up to one week
 
 
 
