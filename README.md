@@ -22,6 +22,9 @@ In today’s fast-paced world, people often rely on processed snacks that are hi
 
 6.Conclusion
 
+**The Natural Energy** Balls project combines health, taste, and simplicity. It demonstrates how natural ingredients can be turned into a marketable and sustainable snack alternative. With minimal investment, anyone can start producing these energy balls at home or on a small scale — promoting wellness and supporting the growing demand for healthy, natural snacks.
+
+
 ### Collaborators:
 - Chanane Maram
 - Zougari Manel
